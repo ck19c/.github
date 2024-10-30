@@ -1,1 +1,1 @@
-A page for my social media accounts.
+Links to all of my social media accounts.
