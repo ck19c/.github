@@ -1,1 +1,1 @@
-Links to all of my social media accounts.
+Redirects to calvink19.github.io/contact.
